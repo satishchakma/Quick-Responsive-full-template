@@ -1,0 +1,1 @@
+# Quick-Responsive-full-template
